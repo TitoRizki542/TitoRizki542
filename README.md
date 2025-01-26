@@ -1,1 +1,1 @@
-![Uploading Animation - 1737856359126.gif…]()
+![https://lottiefiles.com/free-animation/webprogramming-7Jr6OXWGCT](demo/animation.gif)
